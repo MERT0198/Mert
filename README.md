@@ -1,0 +1,2 @@
+# Mert
+Mavi tik istiyorum
